@@ -1,0 +1,2 @@
+# -yahoo.com.tw
+Show
